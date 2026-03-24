@@ -1,1 +1,3 @@
-![Selamat Menjalankan Ibadah Puasa](this_/Ramadan%201447%20H.jpg)
+<center>Menghadapi era gempurnya NSFW Softed in Internet (NSFWSoftNet)</center>
+
+![Bersiaplah menghadapi aturan baru](https://archive.org/download/abyan_mna-banner-yt/20260322_185512.jpg)
